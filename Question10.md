@@ -1,0 +1,2 @@
+I am one of three breadwinners at home. I contribute a quarter of my salary towards my family's needs. I live away from them, but I make time to see them once a month. If I skip a month or two without visiting, I spend at least two to five days with them when on leave. I am not married, nor do I have children, so this gives me the flexibility to travel. I have been living on my own for the past six years. I can manage this as well as any challenge that will arise.
+
