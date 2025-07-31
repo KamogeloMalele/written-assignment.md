@@ -1,0 +1,2 @@
+I am persistent with tasks until a working solution is found, tested and used. I can work on my own with minimal assistance. I am open to assisting as this allows me to test my knowledge practically. I can work in groups of any size and maintain a tight schedule. I enjoy problem-solving and trying out new techniques. I appreciate attention to detail and can communicate clearly. I am open to travelling where I am needed.
+
