@@ -1,0 +1,2 @@
+The main thing that might hinder my success is not getting enough information about the fundamental aspects of the topics covered in order to form rational branches from which to link concepts. Forming a web of the basics allows me to learn quicker and cement my learning without the need to constantly revisit work in the future. However, revision is important and is used to evaluate if I still hold the same understanding when referencing the main concepts and the ideas that stem from them.  In conclusion, the lack of information or clarity on it might hinder my progress.
+
